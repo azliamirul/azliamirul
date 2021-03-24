@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @azliamirul aka Azli
+- 👀 I’m interested in programming!
+- 🌱 I’m currently learning Information System Engineering at Universiti Teknologi MARA (UiTM) Malaysia
+- 📫 Kindly contact me via email at azliamirul17@gmail.com or dm me through instagram @azliamirul for immediate response.
